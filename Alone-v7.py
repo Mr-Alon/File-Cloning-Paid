@@ -1,4 +1,4 @@
-Author :- MR.ALONE
+Author :- ALONE
 #Github:-https://github.com/Mr-Alon
 #Telegram:- https://m.me/j/AbZbDwELphXy2p83/
 # Time : Thu Nov  9 19:19:57 2023
